@@ -1,1 +1,1 @@
-do hard things
+moving forward
